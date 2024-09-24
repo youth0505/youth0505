@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to make a game
 - 📫 How to reach me ：youthzlf@163.com
 - 😄 Key words: INFP
-- 💻 WeChat subscription number：littlefishop，share some thinking and life clips.
+- 💻 WeChat subscription number：littlefishop，share some thoughts and life clips.
 
 <!---
 youth0505/youth0505 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
