@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @youth0505
 - 👀 I’m interested in AI,photograph, apps, games
 - 🌱 I’m currently learning how to make a game
-- 📫 How to reach me ：youthzlf@163.com
+- 📫 How to reach me ：ztavel0505@gmail.com
 - 😄 Key words: INFP
 - 💻 WeChat subscription number：littlefishop，share some thoughts and life clips.
 
